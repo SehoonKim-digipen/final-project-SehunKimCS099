@@ -1,0 +1,6 @@
+![1.PNG](https://github.com/Rudy-Castan-DigiPen-Teaching/final-project-SehunKimCS099/blob/master/Game%20Design%20Document%20(Sehun.Kim)/1.PNG)  
+![2.PNG](https://github.com/Rudy-Castan-DigiPen-Teaching/final-project-SehunKimCS099/blob/master/Game%20Design%20Document%20(Sehun.Kim)/2.PNG)  
+![3.PNG](https://github.com/Rudy-Castan-DigiPen-Teaching/final-project-SehunKimCS099/blob/master/Game%20Design%20Document%20(Sehun.Kim)/3.PNG)  
+![4.PNG](https://github.com/Rudy-Castan-DigiPen-Teaching/final-project-SehunKimCS099/blob/master/Game%20Design%20Document%20(Sehun.Kim)/4.PNG)  
+![5.PNG](https://github.com/Rudy-Castan-DigiPen-Teaching/final-project-SehunKimCS099/blob/master/Game%20Design%20Document%20(Sehun.Kim)/5.PNG)  
+![6.PNG](https://github.com/Rudy-Castan-DigiPen-Teaching/final-project-SehunKimCS099/blob/master/Game%20Design%20Document%20(Sehun.Kim)/6.PNG)  
